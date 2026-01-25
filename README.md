@@ -10,5 +10,5 @@ c+h please  𓏵  w2i pref
 </p>
 <br>
 <p align="center">
-  <a href=https://rentry.co/finalshot>rentry</a> ⠀⠀ <a href=https://forsaken.atabook.org>ata</a>
+  <a href=https://rentry.co/shedIetsky>rentry</a> ⠀⠀ <a href=https://forsaken.atabook.org>ata</a>
 </p>
