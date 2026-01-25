@@ -6,7 +6,7 @@ sweety sweety, marry me ꉂ(˵˃ ᗜ ˂˵)
 </p>
 <br>
 <p align="center">
-c+h please  𓏵  w2i pref
+heavy c+h comf  𓏵  w2i pref
 </p>
 <br>
 <p align="center">
