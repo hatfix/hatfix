@@ -8,6 +8,9 @@ sweety sweety, marry me ꉂ(˵˃ ᗜ ˂˵)
 <p align="center">
 heavy c+h comf  𓏵  w2i pref
 </p>
+<p align="center">
+i don't like ivandrew. people who<br>ship that pls dont int.🥹
+</p>
 <br>
 <p align="center">
   <a href=https://rentry.co/shedIetsky>rentry</a> ⠀⠀ <a href=https://forsaken.atabook.org>ata</a>
