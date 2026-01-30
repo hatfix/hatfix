@@ -9,7 +9,7 @@ sweety sweety, marry me ꉂ(˵˃ ᗜ ˂˵)
 heavy c+h comf  𓏵  w2i pref
 </p>
 <p align="center">
-i hate ivandrew. people who<br>ship that pls dont int.🥹
+i hate ivandrew. people who<br>ship that pls dont int. ^u^"
 </p>
 <br>
 <p align="center">
